@@ -1,4 +1,4 @@
-# REFLECTIONS![illustration-of-book-icon-free-vector](https://github.com/user-attachments/assets/67a488e8-de05-4a4b-b40d-34f5139cb857)
+# REFLECTIONS
 
 | Assignment | Description | Reflection |
 |--------|--------|--------|
